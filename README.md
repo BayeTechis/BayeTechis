@@ -1,3 +1,2 @@
+ 👀 I’m interested in coding and data analysis
 
-- 👀 I’m interested in coding and data analysis
-- 
